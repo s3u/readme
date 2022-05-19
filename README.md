@@ -14,9 +14,9 @@ What I prefer:
 
 What I don’t prefer:
 
-* Victim mindset
-* Not following through or throwing things over the fence
-* Assuming, instead of asking
+* Victim mindset and learned helplessness — corp life gives plenty of opportunities to develop such tendencies. Fight those.
+* Starting things and getting busy without a clear purpose and metrics to inform success. 
+* Assuming, instead of asking.
 
 My blindspots:
 
