@@ -3,7 +3,7 @@
 How I like to operate:
 * Minimal opinions — I realize opinions are a burden we all carry, and I try to minimize mine. If you find me holding opinions, point them out.
 * Structure — Structure lets us scale teamwork. Though I'm not a process freak, I prefer structured mechanisms to ad hoc activities (meetings, emails, slack messages, etc.) as much as possible.
-* Optimize work for joy and not stress — Workplaces can be stressful. Most of the stress comes from interpersonal relations, assumptions, and how we process ambiguity. Hence I like to incorporate self-care and habits to reduce stress. 
+* Optimize work for joy and not stress — Workplaces can be stressful. Most of the stress comes from poor interpersonal relations, assumptions, and how we process ambiguity. Hence I like to incorporate self-care and habits to reduce stress. 
 
 What brings the best in me?
 * Owning and driving things — Things move when each picks up their share and keeps making them better every day.
