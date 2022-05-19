@@ -22,3 +22,5 @@ My blindspots:
 
 * While I am processing, I tend to withdraw and be quiet. People may expect me to lean in, and I may not do that on the spot. Don't hesitate to nudge me when you see this.
 * I generally don't prescribe. I like to ask questions to help you or the team find a solution. If you need an answer from me, ask so.
+
+Also see my [leadership document](https://www.subbu.org/articles/2021/my-leadership-document-2021-edition/) from last year.
