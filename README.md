@@ -8,7 +8,7 @@ How I like to operate:
 
 What I prefer:
 
-* **Ownerships:** Things move when each picks up their share and keeps making them better every day.
+* **Ownership:** Own, drive, and deliver to completion.
 * **Constructive dialog:** I prefer dialogue instead of simplistic "yes," "no," or "can't do" answers when dealing with complex decisions. A dialog lets us discover mutual assumptions and surface multiple options when no option seems possible.
 * **Continuous improvement:** We learn and grow when we stretch ourselves. Hence I insist on challenging each other and not settling for less.
 
