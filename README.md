@@ -7,7 +7,7 @@ How I like to operate:
 
 What brings the best in me?
 * Owning and driving things — Things move when each picks up their share and keeps making them better every day.
-* Constructive dialog — I prefer dialogue to simplistic yes or no answers when dealing with complex decisions. I believe dialog lets us surface multiple options when no option seems possible.
+* Constructive dialog — I prefer dialogue to simplistic "yes," "no," or "can't do" answers when dealing with complex decisions. I believe dialog lets us surface multiple options when no option seems possible.
 * Continuous improvement — I believe we learn and grow when we stretch ourselves. Hence we must be willing to challenge each other and not settle for less.
 
 What brings the worst in me?
